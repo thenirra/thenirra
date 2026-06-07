@@ -1,2 +1,35 @@
 
-updating thise
+</div>
+
+<div align="center">
+  
+<sub> ![](https://64.media.tumblr.com/7da6fe285d912c21ab3ce68d291a56bb/4477583a6d91240a-bf/s75x75_c1/2648baa70cc8279ce257006842774dc2c3484f7f.gifv) ⠀⠀ c+h always unless with friends, cuddle comf. ⠀⠀sign atabook :^) </sub>
+
+![](divider)
+ ‎ 
+
+  ‎   
+
+<details>
+
+‎   
+
+<summary> ⠀other stuff⠀⠀⠀^_^⠀⠀🐇   </summary>
+
+<img width="213" height="52" alt="image" src="https://github.com/user-attachments/assets/9148b6f9-b341-4e86-91f9-32628d4d2d4c" />  (no idea what this used to be tbh HELP)
+
+info
+
+info
+
+info
+
+info
+
+info
+</details>
+‎  
+‎  
+
+![](little emoji)
+</div>
