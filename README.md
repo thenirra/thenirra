@@ -14,7 +14,7 @@
 
 ‎   
 
-<summary> ⠀other stuff⠀⠀⠀^_^⠀⠀🐇   </summary>
+<summary> ⠀MORE STUFF.   </summary>
 
 <img width="213" height="52" alt="image" src="https://github.com/user-attachments/assets/9148b6f9-b341-4e86-91f9-32628d4d2d4c" />  (no idea what this used to be tbh HELP)
 
