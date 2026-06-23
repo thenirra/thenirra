@@ -15,7 +15,7 @@
 ‎   
 **Nirra** or ask for name. it he only 
 
-you probably can always find me around with @jazzymage, with some fuglies or alone by docks or roblox/dw area
+you probably can always find me around with @jazzymage, with some fuglies, alone by docks or wandering
 
 i love meeting new people! freely int w me all times unless stated otherwise in my name :^))
 
